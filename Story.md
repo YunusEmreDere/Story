@@ -222,3 +222,139 @@
 
 ### Çadır sessizliğe büründü, geriye yaralı haydutların iniltisi ve kamp ateşinin çıtırtısı kaldı.
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+#### 
+
+# Bölüm-3
+
+# 
+
+# Ortam: Haydut Kampı - Liderin Çadırı
+
+# Zaman: Gece Yarısı
+
+### Adam hançerine arka cebinde yer alan mor renkte bir sıvı döker ve sinsice :
+
+### - Bu elimdeki zehir kocaman bir boğayı bile bir damlasıyla yere yıkabilir. Ama sizi iyi tanıdığım için bir boğadan daha fazlası olduğunuzu biliyorum.
+
+### Pedro işi biraz ciddiye alarak yüz tavrını hafifçe değiştirir ve sert bir tavır alır. Sıradan bir insan vücudunun tepki veremeyeceği bir hızda elindeki hançerle birlikte adama saldırır. Fakat adam Pedro'nun bütün saldırılarını bloklar. Bu durum karşısında Pedro tek başına bu adamla baş edemeyeceğini anlayıp:
+
+### - Ne bekliyorsun Luca. Hemen bu işi burada bitirmemiz gerekiyor. Köy daha fazla dayanamaz.
+
+### Luca'nın zihninde ise biraz önce ölen arkadaşının son sözleri aklında yankılanır. Pedro ve adam savaşırken o tamamen odaklanmış bir halde yerde yatan arkadaşına kilitlenmiştir. Gözlerini ellerine ve üstüne sıçrayan arkadışının kanına çevirir. Gözlerinden damla damla yaş akmaya başlar. Pedro:
+
+### - Şuan önündekine odaklan. Biliyorum siz arkadaştan daha öteydiniz ama onu zaten ölü biliyorduk. Daha sonra bu olayı tekrardan düşünürüz. Diyerek az da olsa sözleri Luca'ya tesir etmişti ve Luca kendini toparladı. Ve öfkeden kudurmuş bir şekilde şöyle dedi:
+
+### - Seninle savaşırken kılıç bile kullanmayacağım. Seni kendi ellerimle öldüreceğim. Cesedini 7 parçaya ayırıp yedisini de 7 dağda köpeklere yem edeceğim.
+
+### 
+
+### 
+
+### 
+
+### 
+
+### 
+
+### 
+
+### 
+
+### 
+
+### 
+
+### 
+
+### 
+
+### 
+
+### 
+
+### 
+
+### 
+
+### 
+
+### 
+
+### 
+
+### 
+
+### 
+
+### 
+
+### 
+
+### 
+
+### 
+
+### 
+
+### 
+
+### 
+
+### 
+
+### 
+
+### 
+
+### 
+
+### 
+
+### 
+
+### 
+
+### 
+
+### 
+
+### 
+
+### 
+
+### 
+
+### 
+
+### 
+
+### 
+
+### 
+
+### 
+
+### 
+
+### 
+
+### 
+
+### 
+
+### 
+
+
