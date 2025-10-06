@@ -257,7 +257,7 @@
 
 ### - Şuan önündekine odaklan. Biliyorum siz arkadaştan daha öteydiniz ama onu zaten ölü biliyorduk. Daha sonra bu olayı tekrardan düşünürüz. Diyerek az da olsa sözleri Luca'ya tesir etmişti ve Luca kendini toparladı. Ve öfkeden kudurmuş bir şekilde şöyle dedi:
 
-### - Seninle savaşırken kılıç bile kullanmayacağım. Seni kendi ellerimle öldüreceğim. Cesedini 7 parçaya ayırıp yedisini de 7 dağda köpeklere yem edeceğim.
+### - 
 
 ### 
 
