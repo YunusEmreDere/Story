@@ -1,4 +1,4 @@
-# 🌲 Bölüm 2 — Ormanın Çocuğu
+# Bölüm 2 — Ormanın Çocuğu
 
 ## Zaman: 13 Yıl Sonra
 
@@ -70,7 +70,7 @@ Gareth ayağa kalktı. Dev gölgesi Kael'in üzerine düştü.
 
 ---
 
-## ⚖️ Denge ve Sessizlik
+## Denge ve Sessizlik
 
 #
 
@@ -156,7 +156,7 @@ Gareth, hafif bir gülümsemeyle başını salladı.
 
 ---
 
-## 🥋 Bire Bir: Hoca ve Öğrenci
+## Bire Bir: Hoca ve Öğrenci
 
 #
 
@@ -228,7 +228,7 @@ Kael'in hareketlerini gördükçe gözleri büyüdü.
 
 ---
 
-## 💨 Stratejinin Doğuşu
+## Stratejinin Doğuşu
 
 #
 
@@ -334,7 +334,7 @@ Idris başını salladı.
 
 ---
 
-## 🗡️ Gölgedeki Katil
+## Gölgedeki Katil
 
 #
 
@@ -406,7 +406,7 @@ Gareth'in sesi sertti:
 
 ---
 
-## ⚔️ İlk Kan
+## İlk Kan
 
 #
 
@@ -526,4 +526,4 @@ Sonra Gareth cevap verdi:
 
 ---
 
-**💀 (Bölüm 2 Sonu)**
+** (Bölüm 2 Sonu)**
