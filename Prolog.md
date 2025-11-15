@@ -1,4 +1,4 @@
-# 🌑 Astralis Günlükleri: Bölüm 1 — Kasvetli Borazan
+# Astralis Günlükleri: Bölüm 1 — Kasvetli Borazan
 
 # Ortam: Astralis Krallığı'na bağlı Mirval Köyü
 
@@ -64,7 +64,7 @@
 
 # 
 
-# 🔥 Borazanın Çığlığı
+# Borazanın Çığlığı
 
 # 
 
@@ -170,7 +170,7 @@
 
 # 
 
-# 🩸 Eski Dostun Gölgesi
+# Eski Dostun Gölgesi
 
 # 
 
@@ -234,7 +234,7 @@
 
 # 
 
-# 🌒 Kardeşlik ve İhanet
+# Kardeşlik ve İhanet
 
 # 
 
@@ -504,8 +504,9 @@
 
 # 
 
-# 💫 (Prolog Sonu)
+# (Prolog Sonu)
 
 ---
+
 
 
